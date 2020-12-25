@@ -1,1 +1,0 @@
-# promitac.github.io
